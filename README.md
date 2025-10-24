@@ -1,2 +1,0 @@
-# Snehitha-Portfolio
-Protfolio 
